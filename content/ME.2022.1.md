@@ -1,0 +1,4 @@
+# Abstract
+
+
+Through the British Library's "Unlocking Our Sound Heritage Project", National Museums Northern Ireland established the largest, digitised collection of Irish oral history on the island of Ireland. As Cataloguing Officer on that project I worked at the coalface of this new archive: researching, summarising, and, most importantly, hearing hundreds of hours of interviews on topics as varied as the people and landscapes of Ireland. In this essay, I will outline the role of the public historian in the exploration of the archive, giving consideration to the combination of practical history work and theoretical questions of "post-memory" within the context of oral history. Dr. Guy Beiner at the recent Oral History Network Ireland conferenced gave a keynote on new 'vernacular histories' and this essay will draw some influence from his comments.
